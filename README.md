@@ -1,8 +1,10 @@
+Eai! 🤙
+
 - Estudando: 
-Python; 
-JavaScript; 
-Japonês;
+⌨️ Python; 
+⌨️ JavaScript; 
+🗾 Japonês;
            
 - Parte da primeira turma da Warren Tech Academy!
 
-- Ele/ Dele
+- Ele/ Dele 🏳️‍🌈
