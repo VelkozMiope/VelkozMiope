@@ -3,7 +3,7 @@ Eai! 🤙
 Estudando: 
 * ⌨️ Python; 
 * ⌨️ JavaScript; 
-* 🗾 Japonês;
+* 🗾 Japonês (on-hold!);
            
 Parte da primeira turma da Warren Tech Academy!
 
